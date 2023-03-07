@@ -1,2 +1,2 @@
-# wallpapers
+# Wallpapers
 Wallpapers I like
